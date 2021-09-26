@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Hữu An 
-- 👀 I am interested in everything related to setup and technology
+- 👀 I am interested in everything related to programming and technology
 - 🌱 I’m currently learning everything.
 - 📫 Contact me: https://www.facebook.com/Topxoan070227091603/
 
